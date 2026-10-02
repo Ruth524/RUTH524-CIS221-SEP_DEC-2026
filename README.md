@@ -1,0 +1,2 @@
+# RUTH524-CIS221-SEP_DEC-2026
+Doing as a Resit
